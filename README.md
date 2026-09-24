@@ -18,7 +18,7 @@ Be friends with me! I am cool with interactions unless hanging with friends, the
 
 DNI if you hate worms!! >:(
 
-heres my favorite clips cause i love them all
+heres my favorite clips cause i love them all,
 WARNING!! Kindaaa?? strange
 
 Pony #4] Abc for ~daddy~ rp    
