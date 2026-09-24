@@ -17,6 +17,15 @@ It's very very confusing if you just walk up to me and speak a different languag
 Be friends with me! I am cool with interactions unless hanging with friends, then W2I!!
 
 DNI if you hate worms!! >:(
+
+heres my favorite clips cause i love them all
+WARNING!! Kindaaa?? strange
+
+Pony #4] Abc for ~daddy~ rp    
+      [🩵 | Cyan , AUS - INTWC | 🖤] whispers: *Grabs heracles and eats them*
+      [🩵 | Cyan , AUS - INTWC | 🖤] whispers: Yellow seems more like a tsundere femboy than a shy femboy
+     [Monica playing harmonica] thinks: M-ME?!!!! A TSUNDERE?!! N-N-NO WAY?! THAT'S I-I-IMPOSSIBLE!! HMPH?!!!~ *extremely blushes*
+     [(🍷⚪) White ✩ `] whispers: Okay, I am gay-
 <!--
 **i-make-pizza/i-make-pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
