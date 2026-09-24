@@ -2,6 +2,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=18790D&width=435&lines='+Oh!+Forgive+me+lord!+';'+Oh!+I'm+a+good+girl!+';'+You+put+me+in+this+house..+';'+I+had+to+claw+right+out!+';'+Run%2C+rabbit%2C+run%2C+rabid!+';'+Run%2C+run+run+run+run..+';'+Gift+granted%2C+';'+You've+gone+rancid!+')](https://git.io/typing-svg)
 The ReadMe is back!!
 
+I may act in character/As Green if you talk to me but if unwanted tell me.
+
 Commonly seen in Dance Club and Flower Shop.
 
 Areas you will NEVER see me at: Bakery, Library
