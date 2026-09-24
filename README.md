@@ -21,6 +21,8 @@ Be friends with me! I am cool with interactions unless hanging with friends, the
 DNI if you hate worms!! >:(
 
 yes ill sign ur atabook i love ata pls tell me if u have one meow
+
+I'll follow random people, if i like ur pony sure
 <!--
 **i-make-pizza/i-make-pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
